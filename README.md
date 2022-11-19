@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
 
-Honore de Balzac
+Larry Page
