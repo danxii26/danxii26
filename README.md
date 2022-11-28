@@ -1,3 +1,3 @@
-_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
+_**Your fears, your critics, your heroes, your villains: They are fictions you perceive as reality. Choose to see through them. Choose to let them go.**_
 
-Tom Hanks
+Isaac Lidsky
