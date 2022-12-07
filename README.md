@@ -1,3 +1,3 @@
-_**Do not let what you cannot do interfere with what you can do.**_
+_**Remember that you are very special, no one can play your role better than you.**_
 
-John Wooden
+Damayanti Patra
